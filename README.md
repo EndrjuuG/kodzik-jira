@@ -1,2 +1,3 @@
 # kodzik-jira
 jira
+niggers
