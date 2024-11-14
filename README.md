@@ -1,3 +1,3 @@
 # kodzik-jira
 jira
-niggers
+snickers
